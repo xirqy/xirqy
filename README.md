@@ -1,2 +1,7 @@
 - 👋 Hi, I’m @xirqy
-- coding soon:)
+- slowly coding :)
+- Tiktok:Xirqy
+- Insta:Xirq.y
+- Discord:xirqy#5210
+- DMS ALWAYS OPEN
+- WILLING TO HELP ON PROJECTS!!
